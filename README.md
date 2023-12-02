@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @douglasbatistadev
+- 👀 I’m interested in igaming
+- 🌱 I’m currently learning igaming applications and games developing
+- 💞️ I’m looking to collaborate on all projects
+- 📫 How to reach me douglasbatistadev@gmail.com
